@@ -1,1 +1,1 @@
-being your normal idiot in github.
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&random=false&width=435&lines=HELLO+AND+WELCOME+TO+MY+GITHUB+PAGE;uhh yea i dont know anything to type in this whatsoever)](https://git.io/typing-svg)
